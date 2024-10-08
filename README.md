@@ -31,7 +31,7 @@ Email: [webarhitecti.ro@gmail.com](mailto:webarhitecti.ro@gmail.com)
 - [YouTube](https://www.youtube.com/@WebArhitecti)
 - [Pinterest](https://ro.pinterest.com/webarhitecti/)
 
-## 💞️ Ne poți găsi și pe următoarele platforme:
+## 💻 Ne poți găsi și pe următoarele platforme:
 
 - [GitHub](https://github.com/webarhitecti)
 - [Disqus](https://disqus.com/by/webarhitecti/)
@@ -43,6 +43,10 @@ Email: [webarhitecti.ro@gmail.com](mailto:webarhitecti.ro@gmail.com)
 - [Issuu](https://issuu.com/webarhitecti)
 - [TED](https://www.ted.com/profiles/45353263)
 - [ToateBlogurile](https://toateblogurile.ro/@webarhitecti)
+- [Blogger](https://agentiewebdesignro.blogspot.com)
+- [Tumblr](https://www.tumblr.com/agentieseoro)
+- [Twitch](https://www.twitch.tv/webarhitecti/about)
+- [Vimeo](https://vimeo.com/webarhitecti)
 
 ---
 
