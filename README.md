@@ -31,6 +31,19 @@ Email: [webarhitecti.ro@gmail.com](mailto:webarhitecti.ro@gmail.com)
 - [YouTube](https://www.youtube.com/@WebArhitecti)
 - [Pinterest](https://ro.pinterest.com/webarhitecti/)
 
+## 💞️ Ne poți găsi și pe următoarele platforme:
+
+- [GitHub](https://github.com/webarhitecti)
+- [Disqus](https://disqus.com/by/webarhitecti/)
+- [Linktree](https://linktr.ee/webarhitecti)
+- [Mixcloud](https://www.mixcloud.com/webarhitecti/)
+- [Quora](https://www.quora.com/profile/Web-Arhitecti)
+- [DeviantArt](https://www.deviantart.com/webarhitecti)
+- [Ask.fm](https://ask.fm/zyierkionte)
+- [Issuu](https://issuu.com/webarhitecti)
+- [TED](https://www.ted.com/profiles/45353263)
+- [ToateBlogurile](https://toateblogurile.ro/@webarhitecti)
+
 ---
 
 ⚡ **Fun Fact**: La Web Arhitecți, credem că fiecare afacere merită să strălucească online. De aceea, ne asigurăm că site-ul tău nu doar arată bine, dar și performează excelent în căutări!
