@@ -31,6 +31,12 @@ Email: [webarhitecti.ro@gmail.com](mailto:webarhitecti.ro@gmail.com)
 - [YouTube](https://www.youtube.com/@WebArhitecti)
 - [Pinterest](https://ro.pinterest.com/webarhitecti/)
 
+## Ne găsești si pe următoarele bloguri:
+
+- [Blogger](https://agentiewebdesignro.blogspot.com)
+- [Tumblr](https://www.tumblr.com/agentieseoro)
+- [Wordpress](https://agentiewebdesign5.wordpress.com)
+
 ## 💻 Ne poți găsi și pe următoarele platforme:
 
 - [GitHub](https://github.com/webarhitecti)
@@ -43,10 +49,11 @@ Email: [webarhitecti.ro@gmail.com](mailto:webarhitecti.ro@gmail.com)
 - [Issuu](https://issuu.com/webarhitecti)
 - [TED](https://www.ted.com/profiles/45353263)
 - [ToateBlogurile](https://toateblogurile.ro/@webarhitecti)
-- [Blogger](https://agentiewebdesignro.blogspot.com)
-- [Tumblr](https://www.tumblr.com/agentieseoro)
 - [Twitch](https://www.twitch.tv/webarhitecti/about)
 - [Vimeo](https://vimeo.com/webarhitecti)
+- [500px](https://500px.com/p/webarhitectiro)
+- [Gravatar](https://gravatar.com/webarhitectiro)
+- [Sarmato](https://sarmato.partecipa.online/profiles/webarhitecti/timeline)
 
 ---
 
