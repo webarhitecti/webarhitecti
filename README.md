@@ -31,11 +31,12 @@ Email: [webarhitecti.ro@gmail.com](mailto:webarhitecti.ro@gmail.com)
 - [YouTube](https://www.youtube.com/@WebArhitecti)
 - [Pinterest](https://ro.pinterest.com/webarhitecti/)
 
-## Ne găsești si pe următoarele bloguri:
+## 💻 Ne găsești si pe următoarele bloguri:
 
 - [Blogger](https://agentiewebdesignro.blogspot.com)
 - [Tumblr](https://www.tumblr.com/agentieseoro)
 - [Wordpress](https://agentiewebdesign5.wordpress.com)
+- [Bloglovin](https://www.bloglovin.com/@agentiewebdesign)
 
 ## 💻 Ne poți găsi și pe următoarele platforme:
 
